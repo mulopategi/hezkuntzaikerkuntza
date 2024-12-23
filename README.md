@@ -1,0 +1,1 @@
+Portafolio honetan, Ikasgaian planteatu diren gaiak, landu diren edukiak eta burutu diren ariketak, hausnarketatik eratorritako ekarpenak, ondorioak edota zalantzak, identifikatutako aspektu esanguratsuak edo kritikoak eta horien hausnarketak aurkituko dituzu. 
